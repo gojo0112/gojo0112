@@ -1,2 +1,2 @@
 
-![Satoru-Gojo-Wallpaper-Download](https://github.com/user-attachments/assets/495d0c59-8fef-4f05-89f3-0ab898cf14db)
+  ![gojo_wallpaper_4k_by_anandu132004_dfids4t-414w-2x](https://github.com/user-attachments/assets/1778cce5-518f-48b1-a9ea-d2ecd514d5c2)
