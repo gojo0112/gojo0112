@@ -3,4 +3,5 @@
   <a>
     <img align="center" src="https://readme-typing-svg.herokuapp.com?color=62F7F3&size=35&lines=I'm+the+Strongest!!!!">
   <a>
-  ![gojo_wallpaper_4k_by_anandu132004_dfids4t-414w-2x](https://github.com/user-attachments/assets/1778cce5-518f-48b1-a9ea-d2ecd514d5c2)
+    
+![gojo_wallpaper_4k_by_anandu132004_dfids4t-414w-2x](https://github.com/user-attachments/assets/1778cce5-518f-48b1-a9ea-d2ecd514d5c2)
